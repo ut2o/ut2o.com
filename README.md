@@ -4,7 +4,7 @@
 ## 網站列表
 
 - :point_right:[UT夜猫影视在线](https://www.ut2o.com) - 最全的AV影視在線觀看，速度超快.
-- :point_right:(https://github.githubassets.com/images/icons/emoji/unicode/1f449.png)][色妹妹成人在线电影](https://www.pymbzx.com) - 中文字幕在線，速度超快.
+- :point_right:[色妹妹成人在线电影](https://www.pymbzx.com) - 中文字幕在線，速度超快.
 - ...（持續更新）
 
 
