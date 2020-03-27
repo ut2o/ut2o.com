@@ -8,6 +8,3 @@
 - :point_right:[bb33.net](https://www.bb33.net) - 一些內部視頻免費開放給大家觀看.
 - ...（持續更新）
 
-## 廣告聯繫
-- uthome@protonmail.com
-
